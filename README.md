@@ -1,1 +1,1 @@
-# DC
+# https://dinarcoin.nl
